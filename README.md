@@ -1,0 +1,2 @@
+# mamiking
+80
